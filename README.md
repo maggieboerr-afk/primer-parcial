@@ -1,2 +1,4 @@
-# primer-parcial
-Segunda parte del primer parcial
+Margarita Boerr
+Primer Parcial- Informática General
+Artes Multimediales - UNA
+l
